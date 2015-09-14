@@ -1,0 +1,1 @@
+All chemicals are conc3 replicate1.
